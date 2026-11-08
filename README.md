@@ -34,9 +34,7 @@ I focus on business results first and technology second.
 
 ## Work with me
 
-- 💼 Upwork: *link coming soon*
-- 🔗 LinkedIn: *link coming soon*
-- 🌐 Website: *coming soon*
+💼 **[Hire me on Upwork](https://www.upwork.com/freelancers/~013dff18636d3b18cc)**
 
 ---
 
